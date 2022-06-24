@@ -1,1 +1,1 @@
-neckhard.tch
+neckhardt.ch
